@@ -1,6 +1,6 @@
 # **Zach Hayton**
 **`Baylor Business Fellow`**  
-I’m at **[Baylor University](https://www.baylor.edu/)** sprinting through four majors in four years — blending Busniess Fellows, Finance, Pro-Sales, Computer Science (cybersecurity focus). I want to bring this mix into tech consulting, turning ambiguous business problems into scoped, secure systems that actually move KPIs
+I’m at **[Baylor University](https://www.baylor.edu/)** pursuing four majors in four years — blending Busniess Fellows, Finance, Pro-Sales, Computer Science (cybersecurity focus). I want to bring this mix into tech consulting, turning ambiguous business problems into scoped, secure systems that actually move KPIs
 
 🎮 I love video games and going for hikes. 🗻  
 🏊 As a kid I did swimming and later switched to fencing.🤺  
